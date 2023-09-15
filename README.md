@@ -1,5 +1,5 @@
 ### Hi there 👋
 
 
-- 😄 Pronounces: Kill/Yourself
+- 😄 Pronouns: Kill/Yourself
 - ⚡ Fun fact: The fog is coming 
